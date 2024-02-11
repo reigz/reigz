@@ -1,4 +1,4 @@
-### I'm just a Security Consultant looking for 🐛
+### I'm just a Security Consultant looking for 🐛🐜🐛🐜 across the 🕸️.
 
 <!--
 **reigz/reigz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
